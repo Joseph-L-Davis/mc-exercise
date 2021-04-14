@@ -4,8 +4,14 @@
 ## Here I Am
 # Rockin like a hurricane!
 
-Once upon a time, there was a dragon. The dragon was lonely, so it sought out some gold to keep it company.
+Once upon a time, t a dragon. The dragon was lonely so i out se  to keep it company.
 
-When it finally found a pile of gold, some humans tried to shoot it with arrows. Obviously scared for its life, the dragon tried to scare the humans away with its fire.
+When it finally found a pile of gold, some huma shoot it with arrows. Obviously scared for its life, the dragon tried to scare thewith its fir
+
 
 ### This is an error
+
+Hjakldjflkajsdlkfjal;sjdfa
+
+### Im the best!
+
